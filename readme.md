@@ -1,0 +1,1 @@
+This is the recipe of a very tasty, easy to bake and less time taking cake with less ingridients too. People will love eating this cake as it will take you just 5-10 minutes to bake his cake. This recipe will always help you when you have less time to make a cake.
